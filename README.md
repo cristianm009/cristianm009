@@ -3,15 +3,12 @@
 
 ◀▶↠✈
 
-#GoForIt
+Go For It
 
-🇨🇴
-
-💯🆙
 
 💢🔥💥💪🏃✈️⚽🎧⚓
 
-linktr.ee/cristianm009
+[linktr.ee/cristianm009]linktr.ee/cristianm009)
 
 
 <!--
