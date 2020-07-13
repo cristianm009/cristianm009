@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+Software Developer
+◀▶↠✈
+#GoForIt
+🇨🇴
+💯🆙
+💢🔥💥💪🏃✈️⚽🎧⚓
+linktr.ee/cristianm009
+
 <!--
 **cristianm009/cristianm009** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
